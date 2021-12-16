@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @rjf1994
-- 👀 I’m interested in technology
-- 🌱 I’m currently learning new codes
+- 👀 I’m interested in law and technology
+- 🌱 I’m currently learning articles and codes
 - 💞️ I’m looking to collaborate on intelligent people
 - 📫 How to reach me rellyjimenezfuertes@gmail.com 09352635786
 
